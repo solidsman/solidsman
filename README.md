@@ -1,6 +1,6 @@
 # 💫 About Me:
 
-![Alt text](https://i.imgur.com/2miaCSx.gif)
+![Alt text](https://64.media.tumblr.com/9b6cf6e932848418d96204170008b6b6/13ef9ecd4c994832-28/s540x810/36c7f068d7f60bf575950c600fee8e0d0c3a4364.gif)
 
 
 
